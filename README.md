@@ -7,7 +7,7 @@
     <br>Mostly you will find me doing absolute random stuffs related to games/analysis :blush:
     <br>Or keeping an eye on development which makes my life simpler :grin:
     <br><br>See anything interesting? :sparkles:
-    <br>Ping me on discord @ pokasoda#1864 :mailbox_with_mail:
+    <br>Ping me on discord @ BG#7771 :mailbox_with_mail:
   </samp>
   
   <details align="right">
